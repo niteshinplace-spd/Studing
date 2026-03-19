@@ -1,4 +1,4 @@
 # Studing
 Time to Study
 <br>
-Author: Just Jerry
+Author: Just Jerry (Me)
